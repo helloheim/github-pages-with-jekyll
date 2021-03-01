@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to Helloheim's World
 
-I'm glad you are here. I plan to talk about ...
+I'm all powerful
